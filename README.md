@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Rupam Ghosh😏
-- 👀 I’m interested in Web Devolopment and Data Science🙂
+- 👀 Interested in Web Devolopment and Data Science🙂
 - 📫 How to reach me ....gmail-ghoshrupam1144@gmail.com📧
 - 👉
 
